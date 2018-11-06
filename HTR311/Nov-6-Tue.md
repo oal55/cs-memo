@@ -58,3 +58,50 @@ Ingiliz politikasi bu anlasmadan sonra degisecek. DIyecekler ki osmanl ibitmis. 
 Misir'i isgal edecekler. Girit ve morayi da uzun sure almaya calisacaklar.
 
 2AH hic toprak kaybetmedi diyen tarihciler var. Adam birinci yilinda imparatorlugun 3'te birini kaybetti.
+
+
+------------------------------------------------------------
+
+Biraz enteresan bi donemi var.
+
+**Yasakli kelimeler:**(ozellikle gazetelerde)
+- Burun demek yasak.
+- Yildiz demek yasak
+- Delilerin iyilesitigyle ilgili hikayeler yazmak yasak.
+
+
+Telgraf aglari oruluyor. Ciddi bir onem ataniyor. Telefonu getirtiyor, nasil calistigini ogrenince(termnial midir nedir vs) yasaklatacak.
+
+- Olumune demiryolu yapiyor. Amaci?
+  - Hicbir gm'den veya yabanci devletten para alamdan, bagis toplayarak sam'dan medineye gidecek bir demir yolu yapiyorlar. AH cikip diyor ki ben sultan olarak bu ayki maasimi veriyor, o ay hicbir musluman memurun maasi yatmiyor. 1. Dunya savasinda isyanci araplar bu demiryolunu yagmalayacaklar.
+  - Bagdat demiryolu. Almanlarin bir projesi, Berlin-Bagdat. Bunun Osmanli ayagi Haydarpasa-Konya-Bagdat. 2AH diyo ki demiryolu yapin, km basina para vericem ve demir yolunun 30km sagi-solunu yapan sirketevericem. Bu demiryolu bayagi zig-zaglidir nerede maden varsa oranin yakinindan geciyo.
+
+- Buharli gemi sayisi arttirildi.
+- Imparatorlugun her yerine rustiye acildi.
+  - Rustiye sayisi 227'den 619'a cikti. Idadi sayisi 6'dan 109'a cikti.
+  - AH Bu okullardan cikan insanlar tarafindan yikildi. Bu okullarda cok modern egitim veriyorlar, ve ogrenciler AH'in sikintili bi insan oldugunu fark ediyorlar.
+
+
+### Sureklilik ve Kopus
+
+**Onceki donem ile olan celiskiler:**
+- **Basin**
+  - Siki denetim ve sansur altinda.
+  - 1880: Yildiz Istihbarat Teskilati, Jurnalcilik. Muhalefet, parasinin ciddi bir bolumune saraydan kazaniyorlar.
+
+- **Mutlak Monarsi**
+  - Iktidari Bab-i Ali'den Yildiz'a tasiyor.
+  - AH elbette tek basina degildi. Kucuk Said Pasa, Kamil Pasa iki onemli figur.
+  - Islahatlari planlayan Ahmet Sakir Pasa, Safvet Pasa gibi isimler belirli zamanlarda on plana cikti.
+  - **Paranoya:** Orduda ve burokraside mektepli-alayli catismasi basliyor.
+
+- **Panislamism:**
+  - En buyuk kopus bu.
+  - Halifelik sembolleriyle islam dunyasina mesajlar gondermek. Endonezyadan cocuk getiriyolar, cocuk turkce siir okuyo vs, sonra bakin diyolar muslumanlara turkce ogrettik.
+  - Butun ingiliz somurge ulkelerine bir adet kuran gonderiliyo.
+  - Sultan tarafindan hediye edilmis bir sancak, osmanli bayragi. Bakin biz burdayiz, bir sey olursa yardim ederiz mesaji veriyolar.
+  - 2AH teknik olarak bir tekkeye bagli. Duzenli olarak bu tekkeyle iletisim halinda.
+  - 2AH bir mason locasina da duzenli olarak para odeyen biri.
+  - Belirli politik baglantilar kurmak icin belirli tekkeler/localar'la baglanti kurmak amacli.
+  - Islamci yenilik taraftarlarini desteklemiyor. 
+
