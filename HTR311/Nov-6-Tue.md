@@ -1,64 +1,63 @@
-# 2. Abdulhamid
+# 2. Abdülhamid
 
-Abdulaziz'in olumu tartismalidir. Bir kisim tarhci intihar etti der. Bir kisim tarihci olduruldu der. 30 Mayista tahttan indirilmis, 5 Haziranda olmus.
+Abdulaziz'in ölümü tartışmalıdır. Bir kısımm tarihci intihar etti der. Bir kısım ise öldürüldü der. 30 Mayıs'ta tahttan indirilmiş, 5 Haziranda ölmüş.
 
-Abdulaziz'den sonra tahta suphesiz 5. Murat cikacak. Murat'in da basina bi sey gelirse tahta Abdulhamid cikacak. Bir sehzade bu durumdaysa ona biraz para verilir, al bu parayla hayatini idame ettir denilir.
+Abdulaziz'den sonra tahta şüphesis 5. Murat çıkacak. Murat'ın da başına bir şey gelirse tahta Abdülhamid cikacak. Bir şehzade bu durumdaysa ona biraz para verilir, al bu parayla hayatını idame ettir denilir.
 
-Adam ticaret yapiyor, ve kazandigi parayi borsada degerlendiriyo. Borsadan cok ciddi para kazanmis birisi. Tahtta Murat var. Murat, amcasi Abdulaziz'in olumunu gorunce psikolojik sorunlar yasamaya basliyor.
+AH ticaret yapıyor, ve kazandığı parayı borsada değerlendiriyor. Borsadan çok ciddi para kazanmış birisi. Bu sırada tahtta Murat var. Murat için, amcası Abdulaziz'in ölümü büyük bir travma. Kısa sürede psikolojik sorunlar yaşamaya başlıyor.
 
-Murat alkolik olacak. Bir odaya giriyolar, toplanti yapacaklar. Murat odada yok. Ariyorlar, masanin altina saklanmis beni oldurmeye mi calisacaklar diye. Yerli - Yabanci doktor getiriyolar, heyet adami inceliyor. Akli dengesi bozuk raporu cikiyor.
+Murat alkolik oluyor. Bir gün toplantı yapılacak, insanlar odaya bir giriyor, Murat odada yok. Arıyorlar, masanın altına saklanmış, beni öldürmeye geldiler sanıyor. Murat'ın bu halini gören yetkililer Yerli - Yabancı doktorlar getiriyolar, bi heyet adamı inceliyor. Akli dengesi bozuk raporu çıkıyor.
 
-Abdulhamid doneminde delilerin iyilestigine dair haber cikarmak yasak. Murat tahttan inince sira 2AH'e geliyo. Diyolar ki buna, gel istanbulun naibi ol. Naib: gecici yonetici. 2AH bunu reddediyo. Reddedince diyorlar ki gel sultan ol, fakat anayasayi ilan edeceksin ve meclisi acacaksin.
+Murat tahttan inince sıra AH'a geliyo. Diyolar ki, gel İstanbul'un naibi ol. Naib geçici yonetici demekmiş. AH bunu reddediyo. Reddedince diyorlar ki gel sultan ol, fakat anayasayı ilan edeceksin ve meclis açacaksın. Sözünü tutmayanın poposu düşsün. 
 
-2AH bu sozleri verip sultan oluyor. Meclis aciliyor. 60% m, 40%gm'den olusan bir meclis. Osmanli halki da ayni oranda m/gm.
+AH bu sözleri verip sultan oluyor. Meclis açılıyor. 60% müslüman, 40% gayri m.den oluşan bir meclis. Dönemin Osmanli halkı da aynı oranda m/gm.
 
 2AH
-- Burclara acayip merakli. Kendisi basak, ve yanina gelen her pasaya senin burcun ne diye soruyormus.
-- Matematige merakli. Zaten ticaretle ilgilenen biri.
-- Gencliginde icen birisi, sultan olduktan sonra icki icmeyi birakiyor. Doktor tavsiyesiyle ROM icmeye basliyor. Adam'in rom bardagi Yildiz sarayinda sergileniyor. Kendine ozel yaptirdigi bir tutunu var, markasi AH.
+- Doneminde delilerin iyileştiğine dair haber çıkarmak yasak. 
+- Burçlara acayip meraklı. Kendisi başak, ve yanına gelen her paşaya senin burcun ne diye soruyormuş.
+- Matematiğe meraklı. Zaten ticaretle ilgilenen biri.
+- Gençliğinde içen birisi, sultan olduktan sonra içki içmeyi bırakıyor. Sonradan doktor tavsiyesiyle ROM içmeye baslıyor. Adam'ın rom bardağı Yıldız sarayında sergileniyor. Kendine özel yaptırdığı bir tütünü var, markası AH.
 - Sherlock Holmes'e acayip hayran.
-- Luksten satafattan cok hoslanmiyo. Sultan olur olmaz Dolmabahceyi bosaltin. Yildiz sarayinda yasiyor.
-- En sevdigi yemek soganli yumurta.
-- Hayvanlara cok merakli. Haycanlari insanlardan daha cok sevdigi soylenir. Sultan olduktan sonra kagithanede hayvan besliyor.
-- Her sultanin sehzadelikte bir zanaat/spor ogrenmesi norm. AH'in zanaati marangozluk. Usta seviyesinde marangozluk ogreniyor. Hobi olarak bunu yapmaya devam ediyor.
-- Sultan olur olmaz yaptigi seylerden biri askerligi 4 yila dusurmek. Uzun askerlige giden insanlar kendini gelistiremez diyor.
-- Turk muzigi davul zurnadir, benim etrafimda calmayin diyormus.
-- Ama 建前は turklugu cok seven, dindar bir insan.
-- 30 Yil boyunca saraydan cikmamis. Bi tek cuma namazina gitmis.1?@
+- Lüksten şatafattan çok **hoşlanmıyo**. Sultan olur olmaz Dolmabahçeyi boşaltıyor. Yıldız sarayında yaşıyor.
+- En sevdigi yemek soğanlı yumurta.
+- Hayvanlara cok meraklı. Hayvanları insanlardan daha cok sevdiği söylenir. Sultan olduktan sonra kağıthanede hayvan besliyor.
+- Her sultanin şehzadelikte bir zanaat/spor oğrenmesi norm. AH'ın zanaatı marangozluk. Usta seviyesinde marangozluk öğreniyor. Hobi olarak bunu yapmaya devam ediyor.
+- Sultan olur olmaz yaptığı şeylerden biri askerliği 4 yıla düşürmek. Uzun askerliğe giden insanlar kendini geliştiremez diyor.
+- Türk müziği davul zurnadır, benim etrafımda çalmayın diyormuş.
+- Ama 建前は türklüğü çok seven, dindar bir insan.
+- 30 Yıl boyunca saraydan çıkmamış. Bi tek cuma namazına gidermiş.
 - Imparatorlugu hafiyeler ve jurnalcilerle dolduracak. Her jurnale sarayda para verecek.
 
 
-Meclisi kapatip anayasayi askiya aldigi icin eski sultan gorevlerini uzerine alan birisi. Fakat hicbir zaman idam cezasi vermemistir(istese verebilirdi). Bunu tarihciler dindarligindan dolayi allah korkusundan yanlis bir karar verirsem diye yorumluyormis?!. Bunun yerine insanlari surgune yolluyo.
+Meclisi kapatip anayasayı askıya aldığı için eski sultan görevlerini üzerine alan birisi. Fakat hiçbir zaman idam cezası vermemiştir(istese verebilirdi). Bunu tarihciler dindarlığından dolayı allah korkusundan yanlış bir karar verirsem diye yorumluyor. İdam yerine insanları sürgüne yollayan bir şahsiyet.
 
 --------------------------------------------------------
 
-Mithat Pasa diye bi adam var, meclis kuruyolar. Vereceginiz butun tavsiyeleri simdiden kabul etmiyoruz. Osmanli Devleti demokratik bir sekilde yonetilecektir.
+Mithat Paşa diye bir adam var, meclis kuruyolar. Vereceğiniz bütün tavsiyeleri şimdiden kabul etmiyoruz. Osmanlı Devleti demokratik bir şekilde yönetilecektir diyor birilerine. Ama kime dediğini henüz bilmiyoruz.
 
-Konferans dagilacak, Rusya Osmanliya savas ilan edecek. 93 harbi. Osmanli ordusu savunma savasi yapacak, butun guclerini pirevne(balkanlar) ve erzuruma yigacaklar ancak Ruslar bu iki sehri de ele gecirecek. 1877'de baslayan savas 6 aylik bi surede yesilkoye(ayastefanos) gelecekler. Yesilkoy-Yildiz Sarayi 12km. Burda durup istanbulu ele gecirsek mi diye dusunecekler.
+Konferans dağılacak, Rusya Osmanlıya savaş ilan edecek. 93 harbi. Osmanlı ordusu savunma savaşı yapacak, bütün güçlerini Pirevne(Balkanlar) ve Erzurum'a yığacaklar ancak Ruslar bu iki şehri de ele geçirecek. Savaş 1877'de başlıyo. Ruslar 6 ay gibi bi sürede Yeşilköy'e(a.k.a. Ayastefanos) gelecekler. Yeşilköy-Yıldız Sarayı arası 12km. Burda durup İstanbul'u ele geçirsek mi diye düşünecekler.
 
-600k - 800k musluman osmanliya gocecek.
-Ayastefanos sartlari:
-- Osm'a bagimli bir bulgaristan prensligi kurulacak.
-- Bosna-hersek ic islerinde bagimsiz
-- Sirbistan, romanya, karadag tam bagimsiz ulkeler olacak.
-- Kars, ardahan, batum ve dogu beyazit rusyaya birakilacak.
-- Teselya Yunanistana birakilacak.
-- Girit ve Ermeni illerinde islahat yapilacak.
+600k - 800k müslüman Osmanlı'ya göçecek.
+Ayastefanos şartları:
+- Osmanlı'ya bağımlı bir Bulgaristan prensliği kurulacak.
+- Bosna-hersek iç işlerinde bağımsız
+- Sırbistan, Romanya, Karadağ tam bağımsız ülkeler olacak.
+- Kars, Ardahan, Batum ve doğu Beyazıt denilen bi yer Rusya'ya bırakılacak.
+- Teselya Yunanistan'a bırakılacak.
+- Girit ve Ermeni illerinde ıslahat yapılacak.
 
-Bu anlasma Ingilterenin hosuna gitmiyo. Cunku zaten Yunanistan'in Rusyayla arasi iyi, bi de ustune bulgaristan kurulacak, VE RUSYA SAYESINDE?! Ingiltere diyo ki bu anlasmayi bi revize edelim.
+Bu anlaşma İngiltere'nin çok hoşuna gitmiyo. Çünkü zaten Yunanistan'ın Rusyayla arası iyi, bi de üstüne Bulgaristan kurulacak, **HEM DE RUSYA SAYESİNDE?!** Daha neler efenim. İngiltere diyor ki, biz en iyisi bu anlasmayi bi revize edelim.
 
-Ayastefanos'un sartlari yumusatilacak. Bulgaristan ikiye bolunecek, basinda hristiyan vali bulunma sartiyla osmanliya bagli.
-Avusturya Bosna-Herksekte asker bulundurma sartila idareyi osmanliya birakti.
-Ingiltere kibrisi aldi.
-Vilayet-i sitte'de islahat. Balkanlarda islahat.
-Ingiliz politikasi tamamen degisti.
+Ayastefanos'un şartları yumuşatılacak. Bulgaristan ikiye bölünecek, başında hristiyan vali bulunma şartıyla Osmanlı'ya bağlı.
+Avusturya Bosna-Herksekte asker bulundurma şartıyla idareyi Osmanlı'ya bıraktı.
+Ingiltere Kıbrı'sı aldı(şartları hafifletmesinin karşılığında).
+Vilayet-i sitte'de islahat. Balkanlarda islahat. I dont even know what I just wrote.
 
-Ingiliz politikasi bu anlasmadan sonra degisecek. DIyecekler ki osmanl ibitmis. Suveys kanali falan da acilmis. Biz en iyisi direk osmanliyi ele gecirelim.
+İngiliz politikası bu anlaşmadan sonra değişecek. Bu Osmanlı'dan bi nane olmaz diyecekler. Biz en iyisi Süveyş kanalı falan da açılmışken direk Osmanlıyı ele geçirelim.
 
-Misir'i isgal edecekler. Girit ve morayi da uzun sure almaya calisacaklar.
+Mısır'ı işgal edecekler. Girit ve Mora'yı da uzun süre almaya çalışacaklar.
 
-2AH hic toprak kaybetmedi diyen tarihciler var. Adam birinci yilinda imparatorlugun 3'te birini kaybetti.
-
+AH hiç toprak kaybetmedi diyen tarihciler varmış. Ama herif daha birinci yılında imparatorluğun üçte birini kaybetti.
 
 ------------------------------------------------------------
 
