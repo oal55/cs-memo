@@ -77,7 +77,7 @@ Modern tibbin ve modern egitimin getirdigi her seyi osmanliya getiren birisi. 2A
 
 **Bati Tipi Semboller**
 - Saat kuleleri. Dogu motifleriyle suslenmis ama bati tipi yapilar.
-- Insanlar okuma yazma bilmiyor, insanlara iktidarini gosterecek sembolik yapilar. Bakin bati tipi bir kule dikiyoruz burda.
+- Insanlar okuma yazma bilmiyor, -insanlara iktidarini gosterecek sembolik yapilar. Bakin bati tipi bir kule dikiyoruz burda.
 
 1 Osm koylusune kimdir bu AH dediginizde alacagimiz cevaplar bunlar. Muhalefetin gordugunun tam tersi bir AH portresiyle karsi karisyayiz.
 
