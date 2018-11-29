@@ -91,7 +91,7 @@ Bu makedonyada yayiliyor, makedonya elden gidiyor, sultan hicbir sey yapmiyor...
 ##### 13 Temmuz 1908 - Resneli Niyazi
 Diye bir adam ordusuyla daga cikacak. Makedonyayi vermeyiz. Sultan ihanet ediyor. Bunlara selanik ve makedonyadaki baska askeri birlikler eslik edecek. AH istanbulda olayi ogrenecek, cok hizli bir sekilde istanbulda askeri bir birlik olusturulacak. Canakkele uzerinden selanik'a gonderilecekler.
 
-Gemiye binen komutanlar ITC'ci. Normal askerler AH'ci. Gemiden inene kadar herkes ITC'ci olacak. Yol boyunca propaganda yapilacak.
+Gemiye binen komutanlar ITC'ci. Normal askerler AH'ci. Gemiden inene kadar herkes ITC'ci olacak. Yol boyunca propaganda yapilacak. Gemiden inenler devrimci olmaya karar vericek.
 
 
 ##### 24 Temmuz 1908
@@ -111,7 +111,7 @@ Muhalefet balkanlarda orgutlu, anadoluda cok etkili degiller. Valiler meydanlard
     3. **Cemiyetler Nizamnamasi:** 
         * Osm demokrat firkasi
         * Ahrar Firkasi
-    4. **Tatili esgal Nizamnamasi:** Grevi cok ozel sartlara bagliyor.
+    4. **Tatili esgal Nizamnamasi:** Grevi yasakliyo, sendika kurmayi cok ozel sartlara bagliyor.
     5. **Tesvik-i Sanayi Kanunu:** Raw material, enerji giderleri vergiden muhaf tutulacak. Ucuz is gucu saglayacagiz.
     6. **Tensikat Kanunu:** Burokraside alaylilarin tasviye edilmesi.
 
@@ -131,22 +131,21 @@ PS'in gazetesi var, Serbesti, burda da ITC elestiriliyor.
 
 AH'in surdugu yenilikci islamcilar Cemiyet-i Ilmiye - Islamiye diye bi cemiyet kuruyolar, bu cemiyet 31 Mart Vakasi'nin 
 
-
 6 Nisan'da Hasan Fehmi vurulacak(Serbesti gazetesinin baskani). Adamin cenaze toreni PS taraftarlarinin bir gosterisine donusecek. Binlerce insan sokaga icikip ITC'nin yaptigi seyleri protesto etmeye baslayacak. Imparatorluk icinde ITC'ye karsi olumsuz bir algi olusmus durumda.
 
 Bununla birlikte AR uzerinde ITC'nin aslinda dini yok etmek uzere kurulmus bir cemiyet oldugu Volkan gazetesinde yazilacak. Bundan ilk rahatsiz olanlar ITC'nin askerleri. Askerler saraya dogru yuruyuse gececek. Meclise degil saraya dogru yuruyuse gececekler. Otorite olarak AH'i goruyorlar. Bu olay AH'in altindan cikmis.
 
 AH'in ordu komtanlarindan biri AH'in gozlerinin onunde parcalanacak. AH hicbir sey yapmayacak. 15 gun boyunca istanbul gostericilerin elinde. ITC balkanlarda cok guvenilir askerlerden bir boluk kuracak. Gostericilerin 6 istegi var
 1. Sadrazam, harbiye naziri, bahriye naziri -> Gorevden alinsin.
-2. ITC cemiyeti uyesi bazi subaylar istanbuldan ayrilacak.
-3. ITC'nin destekledigi bazi millet vekilleri istanbuldan ayrilacak.
+2. ITC cemiyeti uyesi bazi subaylar(isim isim verilmis) istanbuldan ayrilacak.
+3. ITC'nin destekledigi bazi(isim isim) millet vekilleri istanbuldan ayrilacak.
 4. Meclis baskani kesinlikle degisecek AR meclis baskanligini birakacak. Ismail Kemal Bey gelecek yerine, adam modern arnavutlugun kurucusudur.
 5. Seriat geri gelsin.
 6. Butun isyancilar icin genel af.
 
-16 Nisan'da isyancilara dendi ki, butun isyancilari kabul edecegiz, sultanla goruselim. Bu balkanlardaki ordunun adi Hareket ordusu. Mustafa Kemal Pasa, Ismet Pasa, Fethi Okyar(Not a soldier), bunlar istanbula kadar gelecekler. Yesilkoyde mahmut sefvet pasa ordunun basina gececek bir konusma yapacak.
+16 Nisan'da isyancilara dendi ki, butun istekleri kabul edecegiz, sultanla goruselim. Bi yandan da balkanlarda bir ordu kurdular. Bu balkanlardaki ordunun adi Hareket ordusu. Mustafa Kemal Pasa, Ismet Pasa, Fethi Okyar(Not a soldier), bunlar istanbula kadar gelecekler. Yesilkoyde mahmut sefvet pasa ordunun basina gececek bir konusma yapacak.
 
-Istanbul geri alinacak, dervis vahde idam edilecek. PS suclu bulunacak, PS ulkeden ayrilacak, uzun sure geri gelemeyecek. Bir daha ulke yonetiminde soz sahibi olmasi pek mumkun olmayacak.
+Istanbul geri alinacak, dervis vahdet idam edilecek. PS suclu bulunacak, PS ulkeden ayrilacak, uzun sure geri gelemeyecek. Bir daha ulke yonetiminde soz sahibi olmasi pek mumkun olmayacak.
 
 
 Bu is ITC'yi cok daha radikallestirdi. 27 Nisan'da Ah 3 suctan dolayi tahttan indirildi.
@@ -158,6 +157,5 @@ Bu is ITC'yi cok daha radikallestirdi. 27 Nisan'da Ah 3 suctan dolayi tahttan in
 Seyhul islam ona suclarini soyler.
 
 **Tensikat kanunu** Butun memurlar nasil goreve ygeldi incelenecek. Yasi gelenler emekli edilecek. Alaylilar burda tasfiye edildi, mektepliler burokrasiye girmeye basladilar. 
-
 
 AH'i surgun edecekler. Adam elmas kaciracak falan. ssSultanin yetkileri sadece meclis acilisinda konusma yapmak ve seyhul islami atamak olarak guncellenecek. Mehmet Resat tahta cikacak.
